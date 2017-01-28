@@ -4,6 +4,6 @@ Hi human
 
 First of all ,'Breathe assure!'.
 I love coding and calesthetics .
-I love making new friends.
+I love making new friends and books.
 I like all kind of foods(mostly):3
-I love books.
+hail to the tacos!!!
